@@ -1,7 +1,7 @@
 backend:
   name: github
   branch: main
-  repo:  randymized/randymized.github.io 
+  repo:  hawksbrain/hawksbrain.github.io 
 media_folder: "assets/images"
 collections:
   - name: "blog" # Used in routes, e.g., /admin/collections/blog
