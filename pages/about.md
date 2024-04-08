@@ -11,7 +11,7 @@ At one time I grew 77 different varieties and close to 5,000 heads; had fun sell
 
 Alas, I have slowly and steadily cut back and currently grow just enough to support our family, friends, and a few regular shoppers.
 
-Feel free to inquire if any garlic is available using the "contact us" link . I strongly encourage you to check out [the growers that sell at the Minnesota Garlic Festival](https://www.mngarlicfest.com/growers) (and if you haven't gone to [the festival](https://www.mngarlicfest.com), GO!).
+Feel free to inquire if any garlic is available using the ["contact us" link](/contact) . I strongly encourage you to check out [the growers that sell at the Minnesota Garlic Festival](https://www.mngarlicfest.com/growers) (and if you haven't gone to [the festival](https://www.mngarlicfest.com), GO!).
 
 Thanks for checking my page. And for wanting garlic!!
 
