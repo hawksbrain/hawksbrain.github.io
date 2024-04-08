@@ -6,7 +6,7 @@ permalink: /about/
 ---
 I grow garlic around Red Wing, Minnesota, down in the southeast corner. I am lucky to garden where I do… it’s down right beautiful. And friends support me by sharing their land with hawks brain.
 
-At one time I grew 77 different varieties and close to 5,000 heads; had fun selling at the Minnesota Garlic Festival, the Red Wing Farmers Market, and the  Renaissance Festival. 
+At one time I grew 77 different varieties and close to 5,000 heads; had fun selling at the Minnesota Garlic Festival, the Red Wing Farmers Market, and the  Renaissance Festival. I was fortunate to have those experiences but no longer sell at those venues.
 
 Alas, I have slowly and steadily cut back and currently grow just enough to support our family, friends, and a few regular shoppers. 
 
